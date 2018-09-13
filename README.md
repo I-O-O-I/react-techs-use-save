@@ -1,1 +1,1 @@
-# React powerfull techs sandbox 🧘‍♂️
+# React powerfull techs sandbox <ROCK>
